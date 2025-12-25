@@ -27,5 +27,5 @@
 [![Email](https://img.shields.io/badge/Email-Say%20Hi-red?style=for-the-badge&logo=gmail)](mailto:ancheart913@gmail.com)
 💡 *"Data analysis is like neuroscience for datasets - finding patterns in the chaos!"*
 
-- ⚡ Fun fact: ...
--->
+- ⚡ Fun fact: I LOVE CHOCOLATE 
+
